@@ -1,4 +1,4 @@
-# kynning
+# Kynning
 Skálmöld > Halldór Laxness
 
 glanni glæpur > Halldór Laxness
